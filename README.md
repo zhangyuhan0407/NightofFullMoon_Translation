@@ -1,0 +1,1 @@
+# NightofFullMoon_Translation
